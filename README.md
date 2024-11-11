@@ -1,5 +1,5 @@
 ### > Hi there 👋
-### > My name is Eris Oktafiana S.Kom.
+### > My name is Eris Oktafiana
 - 🎓 I'm a Web Designer & Developer
 ### > You can find me on social media
 - https://www.facebook.com/erisoktafiana
